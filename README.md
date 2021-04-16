@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 
 Social Media: https://www.facebook.com/jabneel.delmundo.cruz/
-Email: jabneel.delmundo.cruz@gmail.com
+Email: cruz.delmundo.jabneel@gmail.com
 
